@@ -181,11 +181,11 @@ We would like to send out much love and respect to all of those who have worked 
 * Ruben Andazola
 * Swarm Shogun
 
+[Auto-generated ADLM channel on YouTube](https://www.youtube.com/channel/UC7_ziLg3Vw4zjst09sEXGVQ)
+
 [Future Ben on Apple Music]([https://soundcloud.com/richsphire](https://music.apple.com/us/artist/future-ben/1600778673))
 
 [RichSphire on SoundCloud](https://soundcloud.com/richsphire)
-
-[Auto-generated ADLM channel on YouTube](https://www.youtube.com/channel/UC7_ziLg3Vw4zjst09sEXGVQ)
 
 [Rich Friedland on LinkedIn](https://www.linkedin.com/in/rfriedland/)
 
