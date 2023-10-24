@@ -162,6 +162,7 @@ We would like to send out much love and respect to all of those who have worked 
 
 
 * Brandon Lozano
+* Brian and Jeff Dilley
 * Chris Booth
 * Dave Diaz "Supa 13"
 * Dee-non Jones
