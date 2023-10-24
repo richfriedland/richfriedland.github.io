@@ -187,7 +187,7 @@ We would like to send out much love and respect to all of those who have worked 
 
 [Auto-generated ADLM channel on YouTube](https://www.youtube.com/channel/UC7_ziLg3Vw4zjst09sEXGVQ)
 
-[RichFriedland on LinkedIn]([https://soundcloud.com/richsphire](https://www.linkedin.com/in/rfriedland/))
+[RichFriedland on LinkedIn](https://www.linkedin.com/in/rfriedland/)
 
 [BugBen](https://buggen.com)
 
